@@ -6,7 +6,7 @@ Samuel K. Adesubokan, Julie Funk, Faith Ryan, and Jentery Sayers | University of
 
 19 May 2021, 11am Eastern, Plenary Panel: ["Teaching with Sound / Sound and Pedagogy"](https://spokenweb.ca/wp-content/uploads/2020/02/sw-symposium2021-program-web.pdf)
 
-## About the Prompts: Jentery Sayers 
+## About the Prompts: Jentery Sayers (he / him)
 
 Research motivated by ["Readers Are Listening,"](https://jentery.github.io/506v2/) a Fall 2020 graduate seminar at UVic
 
@@ -24,15 +24,15 @@ Outline of a listening prompt (designed by the UVic SpokenWeb team):
 
 ** 
 
-## Listening as Access: Faith Ryan 
+## Listening as Access: Faith Ryan (she / her) 
 
 Primary source: Alice Wong’s [2017 performance of Laura Hershey’s 1991 poem, “You Get Proud by Practicing,”](https://soundcloud.com/alice-wong-60/you-get-proud-by-practicing-by-laura-hershey) that Wong recorded for the Disability Visibility Project on Soundcloud. 
 
-## Listening as Performance-Sensing: Samuel K. Adesubokan
+## Listening as Performance-Sensing: Samuel K. Adesubokan (he / him) 
 
 Primary source: Peter Adedokun ensemble’s talking drum performance. The audio recording is from a [YouTube video](https://youtu.be/UkTdzLQHS-Q) of Adedokun's performance, which aired on a local television station in Nigeria.
 
-## Listening like Machines: Julie Funk 
+## Listening like Machines: Julie Funk (she / them) 
 
 Primary source: Gertrude Stein, [“From *The Making of Americans*.”](http://writing.upenn.edu/pennsound/x/Stein.php) The Speech Lab Recordings, recorded
 on  January 30, 1935 at Columbia University, collection edited by Chris Mustazza, PennSound.
