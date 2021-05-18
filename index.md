@@ -56,10 +56,10 @@ What is at stake in listening “like” a machine? Is this form of listening a 
 
 Listen four times to any one of the eight fragments of Gertrude Stein’s 1935 reading of *The Making of Americans*. Record your thoughts and observations at each step.
 
-1. Representation 
-2. Organization 
-3. Recognition 
-4. Modelling
+1. Representation: Attune to a single audio event. This can be determined by causal listening (certain mouth sounds, pauses), semantic listening (phrases, repetitions), or any other grouping of your choice. Your chosen audio event may occur multiple times in the fragment, or only once. It may be general (all pronouns) or specific (the use of “he”).
+2. Organization: Address any and all conscious inclusions and exclusions you’ve made in choosing your audio event. Why did you make these choices? Are they choices related to the genre, style, or media you’re working with? Are they related to your personal and social experiences? 
+3. Recognition: Relate your audio event, keeping in mind any warrants made and identified in the organization step, to back to the work as a whole. This step most closely resembles what we might recognize as literary analysis. You might ask questions like, "Does this audio event have a distinct aesthetic or political value in this work?" "Can this audio event be considered a specific character, or attributed to a character in the work?" "How might it inform on processes of mediation and remediation in recording?"
+4. Modelling: "After the third step, you should be able to come to a finding, statement, or conjecture about your chosen audio event. This is your first model. You may now feed this finding back into the process (four more listens) as an intra-comparative analysis in which you analyze whether your finding is applicable or in any way relational to other audio events in this fragment, another fragment, or a completely new work within the canon.
  
 ***
 
