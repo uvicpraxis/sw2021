@@ -26,7 +26,7 @@ Outline of a listening prompt (designed by the UVic SpokenWeb team):
 
 ## Listening as Access: Faith Ryan (she / her) 
 
-Primary source: Alice Wong’s [2017 performance of Laura Hershey’s 1991 poem, “You Get Proud by Practicing,”](https://soundcloud.com/alice-wong-60/you-get-proud-by-practicing-by-laura-hershey) that Wong recorded for the Disability Visibility Project on Soundcloud. 
+Primary source: Alice Wong’s [2017 performance](https://soundcloud.com/alice-wong-60/you-get-proud-by-practicing-by-laura-hershey) of Laura Hershey’s 1991 poem, “You Get Proud by Practicing,” that Wong recorded for the Disability Visibility Project on Soundcloud. 
 
 What are the styles and techniques being deployed by the performer? How do these styles and techniques amplify the political and aesthetic significance of the work? How is time utilized in interesting ways in this performance? How do the sounds and/or editing practices diverge from sonic normativity and to what effects?
 
