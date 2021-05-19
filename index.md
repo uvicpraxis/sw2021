@@ -2,9 +2,9 @@
 
 Samuel K. Adesubokan, Julie Funk, Faith Ryan, and Jentery Sayers | University of Victoria | [Department of English](https://www.uvic.ca/humanities/english/) | [Praxis Studio for Comparative Media Studies](https://uvicpraxis.github.io/)
 
-2021 SpokenWeb Symposium: ["Listening, Sound, Agency"](https://spokenweb.ca/symposia/)
-
-19 May 2021, 11am Eastern, Plenary Panel: ["Teaching with Sound / Sound and Pedagogy"](https://spokenweb.ca/wp-content/uploads/2020/02/sw-symposium2021-program-web.pdf)
+2021 SpokenWeb Symposium: ["Listening, Sound, Agency"](https://spokenweb.ca/symposia/)  
+19 May 2021, 11am Eastern  
+Plenary Panel: ["Teaching with Sound / Sound and Pedagogy"](https://spokenweb.ca/wp-content/uploads/2020/02/sw-symposium2021-program-web.pdf)
 
 ## About the Prompts: Jentery Sayers (he / him)
 
